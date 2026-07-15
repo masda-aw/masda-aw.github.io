@@ -18,6 +18,6 @@ Made possible through the Direct Aid Program of the Australian Embassy in the Ph
 
 ## Site & archive
 
-Site development and digital curation by [OOAKOSIMO](https://mohini.artstation.com) (Mohini Ochangco).
+Site development and digital web curation by [OOAKOSIMO](https://mohini.artstation.com) (Mohini Ochangco).
 
 © Masda-aw. All photography, text, and artwork remain the property of their respective creators and communities. Content may not be reused without permission.
